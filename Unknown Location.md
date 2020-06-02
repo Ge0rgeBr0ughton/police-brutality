@@ -16,10 +16,16 @@ Police officers are seen pushing around and even driving into crowds of people. 
 * https://twitter.com/perfectlyg0lden/status/1267014293628870656
 
 
-### Police kick and beat a man with his hands up | May 30
+### Police kick and beat a man with his hands up | May 30th
 
 A couple of police officers kneed and beat a man who was peacefully standing with his hands up. 
 
 **Links**
 
 * https://twitter.com/BenjaminPDixon/status/1266577416950079494
+
+## Police destroy someone's phone for filming them | May 30th
+
+**Links**
+
+* https://twitter.com/GabrielYadel/status/1266524998702739456
