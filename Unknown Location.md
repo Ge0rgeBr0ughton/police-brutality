@@ -23,3 +23,12 @@ A couple of police officers kneed and beat a man who was peacefully standing wit
 **Links**
 
 * https://twitter.com/BenjaminPDixon/status/1266577416950079494
+
+### Cop shoots rubber bullet at protestor for shouting "Fuck you" | May 30
+
+Apologies if this has already been posted. During a non-violent verbal exchange, a cop fires rubber bullets at a protestor.
+
+**Links**
+
+* https://www.reddit.com/r/PublicFreakout/comments/gtksgq/cop_decides_to_shoot_at_protestor_who_hurt_his/?utm_source=share&utm_medium=web2x
+* https://twitter.com/7interlude/status/1266598835213799424 (this link is for confirming the date)
