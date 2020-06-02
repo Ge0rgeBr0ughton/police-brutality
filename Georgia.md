@@ -11,7 +11,7 @@ Police officer is seen shoving two women off onto the side with his bicycle.
 
 ### Cops pull people out of their car, taze them | May 31st
 
-Despite the woman showing resistance, the policeman grabs her and pulls her out of the car, and proceeds to taze her.
+Man and woman have their car windows smashed, get tazed, and are then arrested. They were not protestors but were out after curfew, and they don't resist arrest.
 
 **Links**
 
